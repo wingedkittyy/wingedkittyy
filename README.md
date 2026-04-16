@@ -1,8 +1,11 @@
 <div align="center">
 
-![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1493944003102773458/Tumblr_l_20488885424990.gif?ex=69e0cf46&is=69df7dc6&hm=8b7f95cd4825f3ce5efa3c0f160c8be8e5643c5582f2ea5838759a3306f2e983)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493936906386542622/Tumblr_l_27366339979861.gif?ex=69e1716a&is=69e01fea&hm=fa63e6e0e22d2c434aa7adfa52627ad51cb66d3c37c5ae0fda3defa7789292d6)
 
-<img width="25" height="25" src="https://cdn.discordapp.com/attachments/1375762041461145642/1493935684841504860/Untitled495_20260415192630.png?ex=69e0c787&is=69df7607&hm=d5bff4c517dd41bb5898150b7627bef52dc226254d9c33c5bb1a86aee60e964b&"/></a> <img width="25" height="25" src="https://cdn.discordapp.com/attachments/1375762041461145642/1493935685340762373/Untitled495_20260415192614.png?ex=69e0c787&is=69df7607&hm=17fc275f340ae04162892da69724aa771c39a91a9488e4f6683ca7f43f56d84e&"/></a> [![Hits](https://hits.sh/github.com/wingedkittyy.svg?style=plastic&label=wingedkittyy&color=3c5789&labelColor=767c97)](https://hits.sh/github.com/wingedkittyy/)
+<img width="50" height="45" alt="Untitled495_20260415192630" src="https://github.com/user-attachments/assets/f580eb20-e9f7-43a4-9aa4-693eef3d9cd8" />
+<img width="50" height="45" alt="Untitled495_20260415192614" src="https://github.com/user-attachments/assets/2f445012-0c94-4fb1-955b-5c414e1f0892" />
+
+[![Hits](https://hits.sh/github.com/wingedkittyy.svg?style=plastic&label=wingedkittyy&color=3c5789&labelColor=767c97)](https://hits.sh/github.com/wingedkittyy/)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493961001404596224/Tumblr_l_33114246311511.gif?ex=69e0df1b&is=69df8d9b&hm=1c3fad7c60c98d101494eab567572518eb9bf8bdf4d1cb727891498374c43835)
 
