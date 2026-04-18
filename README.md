@@ -15,6 +15,7 @@ $${\color{red}Advised \ in \color{black} \ light \ mode \ }$$
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495061400580522086/Untitled503_20260418220004.png?ex=69e4dfee&is=69e38e6e&hm=140a22477a173644fd54e9cda572cb8e8c71d657ec2f28207b8fc070bd3815fa&)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Montserrat&weight=600&size=50&pause=1000&color=9F0606&center=true&vCenter=true&width=435&lines=Executioner+)](https://git.io/typing-svg)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495057137615769690/Tumblr_l_42304916647675.gif?ex=69e4dbf6&is=69e38a76&hm=f86fb14255aaa04e2d639483d330310862d498a5a3c9822f1a7fb9ab6bd456b9)
 
