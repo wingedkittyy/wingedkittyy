@@ -9,11 +9,13 @@
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495027468157845584/Tumblr_l_34752916604301.gif?ex=69e4c054&is=69e36ed4&hm=2251e8ade76619e280e32791ae7debc6aef8c7b3b025e146f0479124b71780fb)
 
-advised to see in light mode!
+$${\color{red}Advised \ in \color{black} \ light \ mode \ }$$
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495027429373247579/Tumblr_l_35399851271571.gif?ex=69e4c04b&is=69e36ecb&hm=9d0f8e02acfafb905cf0fc2222bfd5302a1af15d4061f73050b1c38215b32301)
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495061400580522086/Untitled503_20260418220004.png?ex=69e4dfee&is=69e38e6e&hm=140a22477a173644fd54e9cda572cb8e8c71d657ec2f28207b8fc070bd3815fa&)
+
+$${\color{red}Your \ style \ }$$
 
 ![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495057137615769690/Tumblr_l_42304916647675.gif?ex=69e4dbf6&is=69e38a76&hm=f86fb14255aaa04e2d639483d330310862d498a5a3c9822f1a7fb9ab6bd456b9)
 
