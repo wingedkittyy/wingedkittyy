@@ -1,22 +1,24 @@
 <div align="center">
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493936906386542622/Tumblr_l_27366339979861.gif?ex=69e1716a&is=69e01fea&hm=fa63e6e0e22d2c434aa7adfa52627ad51cb66d3c37c5ae0fda3defa7789292d6)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495061400135929896/Untitled503_20260418215654.png?ex=69e4dfee&is=69e38e6e&hm=7550c78f4614183a50f23b3bef43fd3da084f748d310659844d4f92dccdcdf88&)
 
-<img width="50" height="45" alt="Untitled495_20260415192630" src="https://github.com/user-attachments/assets/f580eb20-e9f7-43a4-9aa4-693eef3d9cd8" />
-<img width="50" height="45" alt="Untitled495_20260415192614" src="https://github.com/user-attachments/assets/2f445012-0c94-4fb1-955b-5c414e1f0892" />
+<img width="25" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1495027449312972911/Tumblr_l_34777343114918.gif?ex=69e4c050&is=69e36ed0&hm=851c88167bfab6342eb30442725b82056fa108e1d8d84708c1eede91ef4f8e47" />　[strawpage](https://cquackityfilledd.straw.page) (˶˃ᆺ˂˶) [atabook](https://cquackityfilledd.atabook.org/)　<img width="25" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1495027440119054346/Tumblr_l_35366120797107.gif?ex=69e4c04d&is=69e36ecd&hm=9cfbd6e94dd6dfa27ffad5cd2caaf601b99c09e13b466e8cc510cb9e69ca29b4" />
 
-[![Hits](https://hits.sh/github.com/wingedkittyy.svg?style=plastic&label=wingedkittyy&color=3c5789&labelColor=767c97)](https://hits.sh/github.com/wingedkittyy/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493961001404596224/Tumblr_l_33114246311511.gif?ex=69e0df1b&is=69df8d9b&hm=1c3fad7c60c98d101494eab567572518eb9bf8bdf4d1cb727891498374c43835)
+[![Hits](https://hits.sh/github.com/wingedkittyy.svg?style=for-the-badge&label=CUTEST%20player&color=511616&labelColor=120a0a)](https://hits.sh/github.com/wingedkittyy/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1493958348809441371/Untitled500_20260415205646.png?ex=69e0dca2&is=69df8b22&hm=cdb7f93180dc436b7a995e88220fdc72f56a350a7e386c33e0cb86a327720879)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495027468157845584/Tumblr_l_34752916604301.gif?ex=69e4c054&is=69e36ed4&hm=2251e8ade76619e280e32791ae7debc6aef8c7b3b025e146f0479124b71780fb)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493936319259475998/Tumblr_l_14610302911101.gif?ex=69e0c81e&is=69df769e&hm=c23dd79a940cf52120fb72c02e8d0542fea3bf794970909e0c1c625bcbec0788)　[strawpage](https://cquackityfilledd.straw.page) (˶˃ᆺ˂˶) [atabook](https://cquackityfilledd.atabook.org/)　![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493936308417069127/Tumblr_l_14608271981101.gif?ex=69e0c81b&is=69df769b&hm=3d590b87bdd358f2ab6dddd484b2dc356fc8dcb3a2b7c261427d71a7aa1ba0a9)
+advised to see in light mode!
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493961001404596224/Tumblr_l_33114246311511.gif?ex=69e0df1b&is=69df8d9b&hm=1c3fad7c60c98d101494eab567572518eb9bf8bdf4d1cb727891498374c43835)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495027429373247579/Tumblr_l_35399851271571.gif?ex=69e4c04b&is=69e36ecb&hm=9d0f8e02acfafb905cf0fc2222bfd5302a1af15d4061f73050b1c38215b32301)
 
-<img width="87" height="31" src="https://cdn.discordapp.com/attachments/1375762041461145642/1493935923258458254/Tumblr_l_15324690864528.gif?ex=69e0c7c0&is=69df7640&hm=e2d658baa845c20576450d703480a0f1d155c4417faf8a1b628006c43052abeb"/> 
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495061400580522086/Untitled503_20260418220004.png?ex=69e4dfee&is=69e38e6e&hm=140a22477a173644fd54e9cda572cb8e8c71d657ec2f28207b8fc070bd3815fa&)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1493960994282799136/Tumblr_l_33119038980127.gif?ex=69e0df19&is=69df8d99&hm=cae489ad9b46f63702cd070597717a300f2aa64bf83652d0f934840834436293)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495057137615769690/Tumblr_l_42304916647675.gif?ex=69e4dbf6&is=69e38a76&hm=f86fb14255aaa04e2d639483d330310862d498a5a3c9822f1a7fb9ab6bd456b9)
+
+<img width="87" height="75" src="https://cdn.discordapp.com/attachments/1375762041461145642/1495057129990787094/Tumblr_l_42502321311071.jpg?ex=69e4dbf4&is=69e38a74&hm=541f485ce1fc4320df470965591b644775af5959f77ed0b681d3582cbaefe8bb"/> 
+
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1495062128254517268/Tumblr_l_43720725379990.gif?ex=69e4e09c&is=69e38f1c&hm=53ce9a3a09b18a0a7f46399ab100e83770faab29c5d5615eb4227ddb2b3fd3ec)
 
 </div>
