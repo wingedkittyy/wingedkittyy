@@ -1,20 +1,17 @@
 <div align="center">
 
-<img width="1000" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1496857586589499412/Tumblr_l_24276306013522.jpg?ex=69eb68c2&is=69ea1742&hm=a8b0ae7ca29f939e718bf519cc8b45c2bebef6b9942839a84adb4649734ce2f1" />　
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498606248097218570/Untitled512_20260428164118.png?ex=69f1c554&is=69f073d4&hm=89239494b0ee4c8d43878dae7351edbeecf1edfb7d584b219459e17f419f2dab&)
 
-<img width="30" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1496848750235226153/IMG_20260423_202115.jpg?ex=69eb6088&is=69ea0f08&hm=b31bf2b7667f75e6c4128f68898ec22501f3b31a046fbd477d421f5145d8feab&" />　[strawpage](https://cquackityfilledd.straw.page) (˶˃ᆺ˂˶) [atabook](https://cquackityfilledd.atabook.org/)　<img width="25" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1496848749610270881/IMG_20260423_202129.jpg?ex=69eb6088&is=69ea0f08&hm=d0419e8d608417fea229de2e75b70dab6e71f8025bb137d8fe15adfb26449027&" />
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498606247526535208/Untitled509_20260428162312.png?ex=69f1c554&is=69f073d4&hm=f217bc8393fc2e7ae6f46d197c27144886b4b77e020f8f8c56810e63c688495f&)
+
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498609642895446056/Tumblr_l_21535565684052.gif?ex=69f1c87d&is=69f076fd&hm=952edf25d1168f8c9a57032e0300990e8a89395ac249af3d061c424e20b01c7e)
+
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498610459388018688/Untitled515_20260428170247.png?ex=69f1c940&is=69f077c0&hm=475dc8eeca3b24667e9844ee82722e0b46ead619c3e560f74a811fd4b59f0afb)](https://cquackityfilledd.atabook.org/)
+
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498610936435445841/Untitled515_20260428170441.png?ex=69f1c9b2&is=69f07832&hm=de2d93a4ec664ff546c344e4eab595213aed85b74236de2ef05fd38d6f62b524)
+
+[GUNS](https://guns.lol/wingkit) , [STRAW](https://rensonly.straw.page/ )others in wip!
 
 
-[![Hits](https://hits.sh/github.com/wingedkittyy.svg?style=for-the-badge&label=CUTEST%20player&color=511616&labelColor=120a0a)](https://hits.sh/github.com/wingedkittyy/)
-
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1496848755893211166/IMG_20260423_202101.jpg?ex=69eb6089&is=69ea0f09&hm=38044c7ff566338163c0af0fdd7247d588cccb3f9927077f90521cf8207255a2)
-
-$${\color{green}Advised \ in \color{yellow} \ light \ mode \ }$$
-
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1496857605354688622/Tumblr_l_24254077479828.gif?ex=69eb68c7&is=69ea1747&hm=39f71f163744fd8db5fbdbb80136fd65e07e6bdfb3986a26eb8fedf6d43c47df)
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1496857617362845816/Tumblr_l_24222691279673.jpg?ex=69eb68ca&is=69ea174a&hm=ef99c447c8046b245378a568f8b1f396ba607098c20332f809f7adcdb7e46e27)
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1496857634224078908/Tumblr_l_24218807067749.jpg?ex=69eb68ce&is=69ea174e&hm=cb50e1630ceb9e57affe2fa596d46f60b65e6f67ca72bb8bd52a10554505e143)
-
-<img width="1000" height="31" alt="image" src="https://cdn.discordapp.com/attachments/1375762041461145642/1496857586589499412/Tumblr_l_24276306013522.jpg?ex=69eb68c2&is=69ea1742&hm=a8b0ae7ca29f939e718bf519cc8b45c2bebef6b9942839a84adb4649734ce2f1" />　
 
 </div>
