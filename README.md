@@ -1,17 +1,11 @@
 <div align="center">
+  
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1511609347275358228/Tumblr_l_5675276513338.gif?ex=6a211368&is=6a1fc1e8&hm=e5e5101a01fd246cdd62f8f5ced058fbac824e891e677805ad252986236d7e1f)
+  
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1511599598374748310/Untitled539_20260603131146.png?ex=6a210a54&is=6a1fb8d4&hm=3c98c67d4075e6975982d4268a8cbd533e72c742d0b0918e33067a127235be77)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498606248097218570/Untitled512_20260428164118.png?ex=69f1c554&is=69f073d4&hm=89239494b0ee4c8d43878dae7351edbeecf1edfb7d584b219459e17f419f2dab&)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1511609369190465628/Tumblr_l_5537117190176.gif?ex=6a21136d&is=6a1fc1ed&hm=e9915676b8de6d550d13c80424f63a2e080db8d4cd657bb32ab1054b059e6dc3&)　[GUNS](https://guns.lol/wingkit)　![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1511609368565780520/Tumblr_l_5551362400023.gif?ex=6a21136d&is=6a1fc1ed&hm=a7a9b0292b7340eb8ddc68e9f3f33f1e2430ae0ee6c7c72cc9e011a88360a2ff&)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498606247526535208/Untitled509_20260428162312.png?ex=69f1c554&is=69f073d4&hm=f217bc8393fc2e7ae6f46d197c27144886b4b77e020f8f8c56810e63c688495f&)
-
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498609642895446056/Tumblr_l_21535565684052.gif?ex=69f1c87d&is=69f076fd&hm=952edf25d1168f8c9a57032e0300990e8a89395ac249af3d061c424e20b01c7e)
-
-[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498610459388018688/Untitled515_20260428170247.png?ex=69f1c940&is=69f077c0&hm=475dc8eeca3b24667e9844ee82722e0b46ead619c3e560f74a811fd4b59f0afb)](https://cquackityfilledd.atabook.org/)
-
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1498610936435445841/Untitled515_20260428170441.png?ex=69f1c9b2&is=69f07832&hm=de2d93a4ec664ff546c344e4eab595213aed85b74236de2ef05fd38d6f62b524)
-
-[GUNS](https://guns.lol/wingkit) , [STRAW](https://rensonly.straw.page/ )others in wip!
-
-
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1511609347275358228/Tumblr_l_5675276513338.gif?ex=6a211368&is=6a1fc1e8&hm=e5e5101a01fd246cdd62f8f5ced058fbac824e891e677805ad252986236d7e1f)
 
 </div>
